@@ -1,4 +1,4 @@
-#  
+#  spin a soccer card automatic Script is the best spin a soccer card Script, featuring aimbot and auto-farm. Safe and powerful for all your needs.
 
 
 
